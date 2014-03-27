@@ -1,3 +1,5 @@
+It was snowing.
+
 I knew it was a bad idea to get into his car. As soon as he brushed off the snow, he reached over to me, on the passenger side, and opened the glove compartment. A bottle -- clear and gold.
 
 “You want some?” Arjin asked.
